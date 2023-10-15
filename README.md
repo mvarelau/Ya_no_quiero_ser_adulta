@@ -181,6 +181,6 @@ La verdad si está bien útil crear una cuenta en esta pagina, o red social o tw
 # Punto 6 
 ![image](https://github.com/mvarelau/Ya_no_quiero_ser_adulta/assets/141885396/d40c9059-f642-4ce5-9403-c0a293e0ecc8)
 https://www.linkedin.com/in/maria-alejandra-varela-u%C3%B1ate-29381b296/
-Me siento genial jajajaja, tuve que buscar una foto de mi grado porque me puse a mirar las fotos de los demás perfiles y esa es la más cercana que tengo a algo profecional. Uno realmente no se da cuenta de la importancia de la experiencia laboral hasta que empieza a buscar trabajo, asi que si es muy bueno estar metida en ese mundo desde ya, asi no sea para conseguir trabajo, pero si para aprender más de ese mundo.
+- Me siento genial jajajaja, tuve que buscar una foto de mi grado porque me puse a mirar las fotos de los demás perfiles y esa es la más cercana que tengo a algo profecional. Uno realmente no se da cuenta de la importancia de la experiencia laboral hasta que empieza a buscar trabajo, asi que si es muy bueno estar metida en ese mundo desde ya, asi no sea para conseguir trabajo, pero si para aprender más de ese mundo.
 
 
